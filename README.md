@@ -3,4 +3,4 @@
 Colección de libros.
 Todos los documentos aquí presenten poseen una licencia que permite compartir y descargar gratuitamente.
 
-Blog :https://libroslibresgratis.wordpress.com/
+Blog: https://libroslibresx.wordpress.com/s
